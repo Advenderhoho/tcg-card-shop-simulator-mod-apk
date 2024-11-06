@@ -1,0 +1,1 @@
+# tcg-card-shop-simulator-mod-apk
